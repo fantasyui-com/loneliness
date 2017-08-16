@@ -3,8 +3,8 @@ by Andre Meow
 
 ---
 
-The last thing you say
+The last thing you say,
 
-before loneliness takes you away
+before loneliness takes you away:
 
-"I'm guilty" or "I am in pain"
+"I'm guilty" or "I am in pain".
